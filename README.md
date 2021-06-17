@@ -1,1 +1,1 @@
-# jazedgamer.-github.-io
+# jazedgamer.github.io
